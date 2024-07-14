@@ -1,7 +1,7 @@
 Under Construction.
 
 
-![https://tenor.com/view/magi-system-magi-evangelion-computer-balthasar-gif-26691656)]()
+![https://tenor.com/view/magi-system-magi-evangelion-computer-balthasar-gif-26691656]()
 
 
 <!--
